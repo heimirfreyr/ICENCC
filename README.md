@@ -1,2 +1,2 @@
-# ICENCC
-Icelandic Corpus of Early Nineteenth-Century Correspondence
+# Icelandic Corpus of Early Nineteenth-Century Correspondence (ICENCC)
+An electronic rendition of a collection of diplomatic and semi-normalised editions of private letters using Google Tesseract-OCR and Skrambi for post-correction. ICENCC was intended as an extension to the LCLV19 letter corpus of data up until the middle of the nineteenth century and currently consists of 670 letters written by 26 scribes, approx. 425,000 words.
