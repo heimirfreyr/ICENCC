@@ -1,7 +1,5 @@
 Parsing using Berkeley Parser (BerkeleyParser-1.7.jar) and the IcePaHC grammar set (ice.gr). For further information, see https://github.com/antonkarl/icecorpus/tree/master/parsald.
 
-Morphological / part-of-speech tagging and lemmatisation available soon.
-
 # Error "Skipping sentence with 235 words since it is too long." (1784-1825)
 
 # Error "Skipping sentence with 270 words since it is too long." (1825-1850)
