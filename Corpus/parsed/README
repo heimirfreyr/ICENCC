@@ -1,5 +1,18 @@
 Parsing using Berkeley Parser (BerkeleyParser-1.7.jar) and the IcePaHC grammar set (ice.gr). For further information, see https://github.com/antonkarl/icecorpus/tree/master/parsald.
 
+Update 09/09/2018:
+Sentence length increased to 2000 for (1825-1850):
+
+Warning: no symbol can generate the span from 0 to 75.
+The score is -Infinity and the state is supposed to be TOP
+The insideScores are [1.5E-323] and the outsideScores are [1.0]
+The maxcScore is -Infinity
+
+---
+
+Initial state
+
+Errors:
 # Error "Skipping sentence with 235 words since it is too long." (1784-1825)
 
 # Error "Skipping sentence with 270 words since it is too long." (1825-1850)
@@ -9,4 +22,4 @@ Parsing using Berkeley Parser (BerkeleyParser-1.7.jar) and the IcePaHC grammar s
 ## The maxcScore is -Infinity
 ## Skipping sentence with 219 words since it is too long.
 
-# Increase ssize.
+# Increase sentence length.
