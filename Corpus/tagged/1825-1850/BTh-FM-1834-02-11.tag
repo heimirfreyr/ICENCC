@@ -1,0 +1,26 @@
+31 ta . .
+Fridriksgáfu nveo þann fakeo 11ta tfkfn Februar nkee-m 1834 ta . .
+Dygdaríkasti lkenve og c dýrmætasti lkenve Vinur nken ! !
+Hafdu sfg3fþ Döck nveþ-m og c Heidur nvfo-ö fyrir ao Tilskrifin nhfog og c allt foheo annad nheo gott lhensf , , en c illa aa stendur sfg3en nú aa á aa fyrir aþ mér fp1eþ med nhen Borgunina nveog á aþ Tilskrifunum nhfþg , , því fpheþ Póstinn nkeog verd nhen eg fp1en ad nhfn expedera sfg3fn á ao Morgun nkeo og c ætla sfg3fn nærstum nhen ad nhen kafna sfg3fn í aa innanlands aa og c utanlands nhee Skriptum nxee-s , , - - þar aa er sfg3en þá aa fyrsta lhenve Tak nhen á aþ siálfum nkfþ mér fp1eþ , , ad nhen eg fp1en féck e Tídindin nken-m um ao mína feveo Befordring nveo-m þann fakeo 301a tfkfn Septembr nkeo-m . .
+fór sfg3eþ afstad nhen ad nhen heiman aa þann fakeo tha nkeo Octobr nkee-m . .
+korn nhen híngad nhen Vetrardaginn nkeog fyrsta lkeove og c tók sfg3eþ vid nheo Embætti nheþ þann fakeo SOta nkeo-m hvar aa eg fp1en eptir sfg3en minn feken ágiæta nhfe Formann nkeo fyrirfann sfg3eþ allt fohen í aþ bestu lveþve Reglu nveþ . .
+Vegna ae Arstídarinnar nveegs vard nhen eg fp1en ad nhfn skilja sfg3fn Konu nveo og c Börn nhfo eptir sfg3en og c gét sfg3eþ ei aa sókt ssg þau fphfo fyrri lhfovm en c ívJulii nhen Mánudi nkee-m , , en c skömmu lheþsf a x : : 14 tfkfþ Dögum nkfþ eptir sfg3en Ferd nken-m mína feveo misti nveo eg fp1en yngsta lkeove Dreng nkeo-s minn fekeo tvævetrann nkeog , , efnilegann nkeog , , þetta fahen var sfg3eþ sú faven fyrsta lvenve Frétt nven af aþ Sudurlandi nheþ-ö , , og c skammast sfm1en eg fp1en mín fp1ee ad nhen segia nhen þér fp2eþ hvad nheo mikid nhen mér fp1eþ þókti sfg1eþ um ao hann fpkeo . .
+Dad nhen er sfg3en fyrsta lhenve Barnid nken-m sem ct eg fp1en hefi sfg1en mist nveo , , og c má sfg1en eg fp1en um ao þad nheo segia nhen sem ct einhvör sbg2en gamall lkensf ' ' Recensent nxeþ-ö sem ct siálfur nken var sfg3eþ recenseradr e Miskunarlítid nken-m sagdi sfg3eþ : : Jeg e troede nhen aldrig nhen at e en c Recension nken-m kunde nkeo smerte nhen saameget sfg1en . .
+Ég fp1en þurfti sfg1eþ annars aa ad nhen fara sfg3fn strax aa hingad nhen , , því fpheþ Kammerrad nken-m Briem nken-m sem ct var sfg3eþ constitueradur e í aþ Vacancen nkeþ-m lagdist sfm3eþ veikur lkensf Laugardaginn nkeog fyrstann nkeog í aþ Vetri nkeþ , , og c lá sfg3eþ sídan nhen alla foveo Leid nken-m , , svo aa hann fpken komst sfm3eþ ei aa hédan nhen fyrri lhfnvm en c þann fakeo 6ta tfkfn þessa fakee Mánadar nkee-m . .
+Hann fpken er sfg3en gullærlegur lkensf Madur nken-s og c gódur sfg3en Politiemeistarí nkeo-m . .
+Cancellierád e Biörnsen nken-m sækir sfg3en nú aa um ao Lausn nveo og c eg fp1en heyri sfg1en fyrst aae í ao Dag nkeo ad nhen hann fpken sé svg3en yfirfallinn sþgken af aþ Steinsótt nveþ . .
+Jardleysur nken miklar lvfnsf en c Vedur nvfn-s gott lhensf um ao alla foveo Nordur nveo-m Múla nkeo-s , , Díngeyar nkee-m og c Eyafiardar nkee-m Sýsslu nveþ-ö og c vida sfg3fn haett ssg vid nheo Heyleysi nhen í aþ besta lkeþve Heiskapar nkeþ-m Ari nken-s svo aa aldrei aa hefir sfg3en Island nhen-ö verr aam verid nheo undir aþ Hallæri nheþ búid nhen en c nú aa . .
+Eg fp1en hefi sfg1en ecki e í ao adrar nvfo Bækur nvfo litid nhen á aþ þessum fakeþ Vetri nkeþ en c Embættis nhee Protocolla nhfe-ö , , og c fari svg1en þessu faheþ fram ao verd nheo eg fp1en víst aa lærdur sfg3en Madur nken-s um ao þad nheo eg fp1en er sfg1en sextugur lkensf . .
+Ellefu tfhfe Arka nhfe Framverpli nken-m um ao betrud nheo Hiúalög nkee-m fyrir ao Island nheo-ö hefi sfg1en eg fp1en sendt nheo til ae Cancellies nkee-m , , og c Höfudstefnan nvengs sem ct eg fp1en tekid nhen hefi svg3en er sfg3en Fiölgun nveo-s á aþ Dvíngunarmedölum nkfþ-ö og c Vægd nkeþ-m á aþ Ströffum nhfþ . .
+Blessadur lkensf láttu sbg2en mig fp1eo vita sfg3fn hvört lvensf nockur e og c hvörjer nhen hafa sfg3fn sókt ssg ámóti nheþ mér fp1eþ um ao Nordur-Amtid nkeo-m , , þarum nkfþ hefir sfg3en einginn nhen skrifad nhen mér fp1eþ neitt foheo . .
+A x Nordlendínginn nkengö lítst sfm3en mér fp1eþ allvel aa , , og c svo aa eru sfg3fn þeir fpkfn burgeislegir lkfnsf ad nkfn eg fp1en þykist sfm1en vera sng ordinn nkeng Amtmadr nken-m yfir aþ tómum lkfþsf Höfdíngium nkfþ-ö , , og c miklu lveovf hreinlátari lhfevm eru sfg3fn Menn nkfn hér aa en c fyrir aa Sunnan aa - - þarámóti nheþ eru sfg3fn þeir fpkfn miklu lkfnvf verri lkfnvm Siálfbyrgíngar nkfn-s . .
+Sr nhen . .
+Vigfús nken-s Eiríksson nken-s Reikdal nken-m ordinn nkeng minn feken Sálusorgari nken , , hann fpken er sfg3en allvel aa gáfadur lkensf og c gódur sfg3en Predikari nken . .
+Fyrirgéfdu sfg3fþ nú aa Fiíterinn nkeogö og c kalladu sfg3fþ mig fp1eo Simon nken-m Sure nxeþ-ö ef c eg fp1en ei aa skrifa sfg1en þér fp2eþ rækilegar lvfosf til aa í ao Sumar nheo . .
+Þinn feken margskuldbundinn lkensf heidrandi lkenof og c elskandi slg Vinur nken
+B nxen-s . .
+Thorarensen nven-s . .
+Fornfrædafélagsins nheeg vegna ae bid nhen eg fp1en þig fp2eo svo aa vel aa giöra lhenvm ad nhen incassera e þá aa 15 tfhfn rb nhfn . .
+hiá nhen Bened nkeo-m . .
+og c betala sfg3fn Félaginu nheþg þá aa uppá ao mín fehfo vegna ae ; ;
+Svei au mér fp1eþ ef c eg fp1en man sfg1en hvad nheo eg fp1en er sfg1en því aa skuldugur lkensf . .

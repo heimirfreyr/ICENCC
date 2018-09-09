@@ -1,0 +1,47 @@
+< < meta-info nhen > > Ragnhildur nven-s Magnúsdóttir nven-s til ae Finns nkee-s Magnússonar nkee-s < < / / meta-info nhen > >
+< < meta-date nhen > > [ [ 10 ta . .
+ág nhen . .
+1831 ta , , á aþ sérstöku lheþsf blaði nheþ . .
+] ] < < / / meta-date nheo > >
+Á aþ þessu faheþ blaði nheþ læt sfg1en eg fp1en þig fp2eo sjá sng ásigkomulag nheo móður nvee minnar fevee sálugu lveevf . .
+Þegar c eg fp1en og c minn feken sæli lkenvf maður nken fluttum sfg1fþ frá aþ Þingvöllum nkfþ og c hingað aa að aþ Meðalfelli nheþ-ö árið nheog 1822 ta , , þá aa var sfg3eþ hún fpven við ao sitt feheo vanalega aa stillta lheovf og c blíðlynda lheovf dagfar nheo , , hverju fsheþ hún fpven að aþ nokkru foheþ leyti nheþ hélt sfg3eþ til ae síns fekee dauðadags nkee . .
+En c strax aa og c við fp1fn vorum sfg1fþ hingað aa komin sþgven , , fannst sfm3eþ mér fp1eþ eins aa og c hún fpven tæki svg3eþ nokkurri foveþ umbreytingu nveþ , , því fpheþ mér fp1eþ fundust sfm3fþ sansar nkfn hennar fpvee fara sfg3fn á ao eitthvert foheo reik nheo . .
+Þó aa bar sfg3eþ lítið aa á aþ því fpheþ á aþ millum nhfþ , , því fpheþ altíð lhfnsf var sfg3eþ stillingin nveng söm fbven . .
+Þetta fahen fór sfg3eþ nokkuð foheo í ao vöxt nkeo á aþ ári nheþ hverju fsheþ þangað aa til aa 1829 ta . .
+Eitt tfhen kvöld nhen seint aa í aþ janúar nkeþ sýndist sfm3eþ sem c hún fpven liði svg3eþ í ao öngvit nheo , , og c upp aa úr aþ því fpheþ fékk sfg3eþ hún fpven mörg lhfosf slög nhfo , , hvert fohen á sfg3en eftir aþ öðru foheþ , , og c kom sfg3eþ svo aa ekki aa til ae síns fehee venjulega lheevf tilstands nhee fyrr aam en c eftir ao nokkur fohfo dægur nhfo , , hver nkeo eð c varð sfg3eþ að cn vaka sng hjá aþ henni fpveþ , , því fpheþ þá aa sýndist sfm3eþ sem c hún fpven gæfi svg3eþ lítið lhensf um ao , , hvað fshen um ao hana fpveo leið nveo . .
+Þessu faheþ fylgdi sfg3eþ þá aa svefnleysi nhen og c nokkurskonar lkenof galinskapur nken , , henni fpveþ óvenjuleg lvensf kæti nven og c nokkuð fohen byrstari lhfovm orð nhfo til ae þeirra fphfe , , sem ct í aa kringum ao hana fpveo voru sfg3fþ . .
+Síðan aa datt sfg3eþ hún fpven í ao djúpan lkeosf svefn nkeo , , svo aa varð sfg3eþ að cn vekja sng hana fpveo bæði c til ae að cn borða sng og c drekka sng og c þess fphee , , er sfg3en hún fpven við aa þurfti sfg3eþ . .
+Eftir ao þetta faheo komst sfm3eþ hún fpven furðanlega aa til ae síns fekee fyrra lheovm tilstands nhee . .
+Svo aa liðu sfg3fþ nokkrar fovfn vikur nvfn þar aa til aa líkt aa yfirféll sfg3eþ aftur aa og c aftur aa , , en c tíminn nkeng lengdist sfm3eþ nokkuð foheo á aa milli ae kastanna nhfeg , , svo aa það fphen varð sfg3eþ seinast aae rétt lhfnsf misseri nhfn frá aþ því faheþ síðasta lheþve og c þar aa til aa það fphen kom sfg3eþ önnur foven umbreyting nven . .
+Hún fpven var sfg3eþ svo aa , , að c um ao kvöld nheo fékk sfg3eþ hún fpven þyngsli nheo fyrir ao brjóstið nheog , , svo aa að c hún fpven gekk sfg3eþ upp aa og c niður aa , , þó aa hún fpven ekkert fohen hreyfði sfg3eþ sig fpveo . .
+Þetta fahen leið nven frá aa að aþ lítilli lveþsf stundu nveþ , , svo aa við fp1fn gátum sfg1fþ afklætt ssg hana fpveo , , og c hún fpven gat sfg3eþ borðað ssg eða c drukkið ssg eins aa og c hún fpven var sfg3eþ vön lvensf og c síðan aa sofið sþghen rótt lvensf og c vel aa um ao nóttina nveog , , og c um ao morguninn nkeog klætt ssg sig fpveo með aþ tilhjálp nveþ , , og c svo aa gat sfg3eþ hún fpven setið ssg uppi aa og c haldið ssg á aþ ullarhári nheþ eins aa og c vant lhensf var sfg3eþ . .
+Þetta fahen gekk sfg3eþ svona aa í ao hálfa lveosf aðra foveo viku nveo , , að c þyngslaköstin nhfng merktust sfm3fþ öðru foheþ hverju fsheþ , , helzt nhen á ao kvöldin nhfog . .
+En c eitt tfhen var sfg3eþ eftirtakanlegt lhensf , , að c við ao þessa faveo umbreyting nven skerptust svm3fþ sansarnir nkfng , , svo aa að c hún fpven bæði c þekkti sfg3eþ okkur fp1fo mikið aa betur aam en c áður aa , , vissi sfg3eþ hvað fshen tímum nkfþ leið sfg3eþ og c talaði sfg3eþ um ao alla fokfo hluti nkfo með aþ mikið aa meiri lveþvm greind nveþ en c áður aa og c eins aa og c hún fpven hefði svg3eþ meiri lveovm skemmtun nveo af aþ því fpheþ en c fyrr aam . .
+Af aþ þessu faheþ imyndaði lkenvf eg fp1en mér fp1eþ , , að c skammt aa mundi svg3eþ til ae endadægurs nhee hennar fpvee . .
+En c ekki aa merkti sfg1eþ eg fp1en , , að c hún fpven hugsaði sfg3eþ það fpheo sjálf fbhfo fremur aam en c vant lvenof var sfg3eþ , , því fpheþ sjaldan aa kom sfg3eþ það fphen í aþ tali nheþ hennar fpvee , , að c hún fpven hugsaði sfg3eþ þar aa um ao , , um ao þessi fahfo hennar fpvee deyfðar nvee ár nhfo . .
+Um ao nóttina nveog milli ae þess fphee 15 ta . .
+og c 16 ta . .
+marz nhen vaknaði sfg1eþ eg fp1en nálægt aþ miðnætti nheþ , , heyrði sfg1eþ þá aa ekki aa neitt foheo til ae móður nvee minnar fevee , , svo aa eg fp1en fór sfg1eþ að cn hlusta sng til aa . .
+Hún fpven svaf sfg3eþ þá aa svo aa vært aa og c hægt lhensf . .
+En c á aa meðan c eg fp1en sat sfg1eþ uppi aa að cn láta sng Finn nken-s minn fekeo drekka sng , , sem ct hjá aþ mér fp1eþ sefur sfg3en , , þá aa vaknar sfg3en móðir nven min lvensf , , sezt nhen upp aa og c getur sfg3en sjálf fbven lokið ssg sér fpveþ af aa með ao það faheo sem ct henni fpveþ þá aa lá sfg3eþ á aa , , lagðist sfm3eþ útaf aa aftur aa , , breiddi sfg3eþ ofan aa á ao sig fpveo . .
+En c þegar c hún fpven var sfg3eþ lögzt nhen út aa af aa , , komu sfg3fþ ógnar nvee þyngsli nheo og c örðugur lkensf andardráttur nken , , svo aa hún fpven gat sfg3eþ varla aa gegnt aþ mér fp1eþ . .
+Eg fp1en vakti sfg1eþ strax aa stúlku nveo , , er sfg1en hjá aþ mér fp1eþ sefur sfg3en , , til ae að cn kveikja sng , , því fpheþ eg fp1en vissi sfg1eþ , , hvar aa þetta fahen mundi svg3eþ lenda sng , , og c þá aa ljósið nheng kom sfg3eþ , , sá sfg1eþ eg fp1en hún fpven hafði sfg3eþ rænu nveo , , en c átti sfg3eþ bágt lheosf með ao að cn tala sng , , því fpheþ þá aa við fp1fn vildum sfg1fþ annaðhvort c bjóða sng henni fpveþ að cn drekka sng , , strjúka sng brjóstið nheog eða c bera sng á ao það fpheo , , ýtti sfg3eþ hún fpven heldur c frá aþ sér fpveþ , , en c talaði sfg3eþ ekkert fohen , , nema c hún fpven sagði sfg3eþ stundum aa : : svona aa . .
+Svo aa áleit sfg3eþ eg fp1en hana fpveo rænulausa lheevf úr aþ því fpheþ dagur nken ljómaði sfg3eþ , , og c svo aa hjarði sfg3eþ hún fpven til ae dagseturs nhee þess fphee 16 ta . .
+marz nhen , , þá aa hvíldi sfg3eþ guð nken hana fpveo eftir ao sitt feheo langa lheovf og c lofsverða lheovf líf nheo . .
+Þann fakeo 29 ta . .
+marz nhen var sfg3eþ hún fpven jarðsett sþgven hér aa að aþ Meðalfelli nheþ-ö . .
+Útförin nveng var sfg3eþ öngvan fokeo veginn sþgken svo aa sem aa henni fpveþ heyrði sfg3eþ , , en c kringumstæður nvfn mínar fevfn leyfðu sfg3fþ mér fp1eþ ei aa meira aam . .
+Líkmenn nkfn að aþ henni fpveþ valdi nheþ eg fp1en til ae að cn vera sng þá aa , , sem ct bæði c höfðu sfg3fþ sýnt ssg mér fp1eþ og c henni fpveþ mörg lhfnsf elskuleg lhfnsf atlot nhfn og c eru sfg3fn í aþ öllu foheþ Sómamenn nkfn . .
+Það fphen voru sfg3fþ bræðurnir nkfng Loftur nken-s á aþ Hálsi nkeþ-s , , Þorsteinn nken-s í aþ Laxanesi nheþ-ö , , Guðlaugur nken-s á aþ Hurðarbaki nheþ , , Pétur nken-s í aþ Eyjum nvfþ-s , , Magnús nken-s Kortsson nken-m og c Þorlákur nken-s á aþ Bakka nkeþ-s . .
+Prestinn nkeog minn fekeo , , síra nkeo Sigurð nkeo-s , , mátti sfg1eþ eg fp1en láta sng syngja sng hana fpveo til ae moldar nvee . .
+Hann fpken gjörði sfg3eþ það fpheo svo aa sem aa hann fpken gat sfg3eþ bezt nheo , , karlinn nkeog , , og c þá aa átti sfg1eþ eg fp1en að cn láta sng mér fp1eþ lynda sng það fpheo . .
+Stiftprófasturinn nkeng gat sfg3eþ ekki aa komið ssg . .
+Eitt tfhen þótti sfg3eþ mér fp1eþ að aa , , sem ct eg fp1en gat sfg1eþ þó aa ei aa við ao gjört lheosf , , eg fp1en gat sfg1eþ ei aa látið ssg grafa sng rétt aa nærri aþ gröf nveþ föður nkee míns fekee , , því fpheþ hann fpken var sfg3eþ grafinn sþgken hér aa innan ae kirkju nvee . .
+En c að aþ forlagi nheþ móður nvee minnar fevee hafði sfg3eþ Þórður nken-s karlinn nkeog borið ssg í ao kirkjutóftina nveog og c gjört ssg þar aa hól nkeþ , , sem ct mér fp1eþ sýndist sfm3eþ ófært lhensf um ao vetrartíma nkeo að cn ná sng upp aa . .
+Svo aa lét sfg1eþ eg fp1en taka sng gröf nveo hennar fpvee á aþ kórbaki nheþ , , á aþ hlið nveþ við fp1fn hennar fpvee fjögur tfhfo börn nhfo , , Birnir nken-s tveir tfkfn , , Þóra nven-s og c Eggert nken-s , , og c hjá aþ þeim fphfþ Eggert nkeo-s minn feken , , Ólafur nken-s og c Magnús nken-s , , og c við ao hans fpkee hlið nveo faðir nken þeirra fpkfe , , minn feken hjartkærí lvfnof maður nken , , svo aa þessi fahfn sjö tfhfn börn nhfn hvíla sfg3fn þar aa á aa milli ae þeirra fphfe í aþ einum tfkeþ reit sfg3eþ . .
+Guð nken-s veit sfg3en , , hvort c við fp1fn bætumst sfm1fn þar aa við ao fleiri lhfovm . .
+- - Að aþ gamni nheþ mínu feheþ hefi sfg1en eg fp1en párað lheosf á ao þetta faheo blað nheo , , hvernig aa þetta fahen gekk sfg3eþ til aa . .
+Þú fp2en hefir sfg2en þar aa af aa þér fp2eþ til ae minnis nhee það faheo sem ct þú fp2en vilt sfg2en , , en c hitt fahen bíð sfg1en eg fp1en þig fp2eo að cn gefa sng eldinum nkeþg . .
+Gullsmiðurinn nkeng hjálpaði sfg3eþ mér fp1eþ um ao skjöld nkeo á aþ kistu nveþ móður nvee minnar fevee , , en c á ao hann fpkeo bað sfg1eþ eg fp1en stiftprófastinn nkeog að cn semja sng nokkur fohfo orð nhfo , , og c þau fphfo legg sfg1en eg fp1en hér aa innan aa í aa . .
+Gjörðu lheþsf við ao þau fphfo hvað fsheo þér fp2eþ gott lheosf þykir sfg3en . .
+Ætíð aa sæll lkensf . .

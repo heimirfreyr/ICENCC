@@ -1,0 +1,40 @@
+27 ta . .
+Gufunesi nheþ-s þann fakeo 20ta tfkfn Marts nkee-m 1828 ta . .
+Hafdu sfg3fþ kíærar lvfnsf Þackir nvfn-ö fyrir ao ástúdlegt lheosf Tilskrif nheo af aþ 15da tfhfþ nærstlidins lhfþof Mánadar nkee-m , , nema c hvad nhen mér fp1eþ finnst sfm3en þú fp2en skénsir nken mig fp1eo fyrir ao þad nheo eg fp1en vard nhen veikur lkensf í ao Sumar nheo en c eg fp1en verd nhen ad nhen segia nhen mér fp1eþ þad nhen til ae Afsökunar nvee ad nhen eg fp1en hafdi sfg1eþ þó aa haldid nheo mér fp1eþ hreystilega aa í aþ þeim fahfþ Efnum nhfþ jafnmörg lhfosf Ar nxen og c Grettir nken-s var sfg3eþ í aþ Sektinni nveþg , , og c í ao Vetur nkeo þegar c allir fokfn fengu sfg3fþ Pýngsla nkeþ-m Qvefsótt nken-m hvarí nheo margir lkfnsf láu sfg3fþ og c vida sfg3fn liggia nhen enn aa , , batnadi sfg3eþ mér fp1eþ hún fpven med nheo því fpheþ ad nhen gánga sfg3fn fyrir aa innan aa frá aþ Kleppi nkeþ-s ad nhen Gufunesi nheþ-s og c vada sfg3fn Ellidaárnar nvfngö í aþ friósandi nkeþ Vedri nkeþ-m . .
+» » Gak nken-m hen nhen og c giör nhen ligesaa nhen ! !
+« « Hundafaraldur-inn nkengs sem ct þú fp2en skrifar sfg3en mér fp1eþ um ao , , hefir sfg3en gengid nhen hér aa sydra lhenvm og c eins aa fyrir aa austan aa , , en c , , mirabile nhen dictu e ! !
+ei aa giört lhensf vart lhensf vid nhen sig fpheo á aþ Gufunesi nheþ-s , , en c í aþ þess fphee Stad nken-m hefir sfg3en Vinnufólk nheo mitt feheo legid nheo nærstum nhen hvör sbg2en eptir sfg2eþ annan fokeo . .
+Heimili nhen mitt fehen er sfg3en annars aa nockud e originalt nken , , því fpheþ nú aa hefi sfg1en eg fp1en tvær tfvfo Vinnukonur nvfo eineygdar nhen , , eina lkfosf heyrnardaufa lhenvf , , fiórdu sfg3fþ halta lheevf , , og c af aþ Vinnumönnum nkfþ mínum fekfþ er sfg3en einn tfken ordinn nkeng hýddur sþgken Þiófur nken-m hvörn nhfo eg fp1en þó aa ætla sfg3fn ad nhen halda sng komandi lhfþof Ar nxen for e at e samle nheo M nkfe e c n nveo n nveo e c s aa k nhen e c k nhen u x n nven ( ( 1 ta s aa k nhen a x b x . .
+Þú fp2en segist sfm2en fá sng Heilsubrest nkeo þegar c þú fp2en hugsar sfg2en um ao Búskapinn nkeog - - skröqvadu e ad nhen Ödrum nxee-s en c mér fp1eþ ! !
+Þú fp2en ert sfg2en med nhen meiri lkfþvm Framqvæmdarmönnum nkfþ-s in e ipsis nhee oeconomicis e , , jeg e er sfg3en , , mín feven Santen nven-m ! !
+got nhen underrettet sfg1en . .
+Hvad nhen Sakleysisstandíd nkee-m snertir sfg3en , , sem ct þú fp2en gétur sfg2en um ao , , þá aa er sfg3en þad nhen frá aþ minni feveþ Sídu nveþ-m ecki e innifalid nhen í aþ neinu foheþ ödru lheþsf enn aa bevæbnet nhfo Neutralitet nxeþ-ö , , sem ct eg fp1en þarf sfg1en ecki e ad nheo segia nhen þér fp2eþ hvörsvegna lheosf mér fp1eþ vegna ae Sæmdar nvee siálfs nkee míns fekee var sfg1eþ naudsynleg lvensf . .
+Padan nhen sem ct eg fp1en held sfg1en þú fp2en meinir svg2en sönnu lhfevf Ydrunina nveogö , , hefi sfg1en eg fp1en frétt ssg ný aa Smáóheilindi nheþ-ö mér fp1eþ til ae Handa nvfe , , óvitlaus lhfosf á sfg1en eg fp1en þadan nheo einkis nhee annars aa Von nven-s , , og c þó aa meira lheovm bætist sfm3en Vid nken-m af aþ sama fbheþ Súrdegi nkeþ-ö , , skal sfg3en þad nhen í aþ Tilliti nheþ til ae mín fp1ee alls fohee engva sng Verkun nveþ hafa sng - - ~ nhen og c í aþ þeirri faveþ qvasi-Betænkning e sem ct eg fp1en gaf sfg1eþ um ao Prentverkid nkeo-m taladi sfg1eþ eg fp1en ei aa eitt foheo Ord nken-m hönum fpkeþ til ae Meins nhee , , heldur c protesteradi sfg1eþ ámóti nheþ ( ( vegna aa Embættisstödu nveþ-ö minnar fevee ) ) ad nhen segia nhen eitt lhensf Ord nken-m um ao þad nheo undanfarna lkfosf eda nkfo um ao Reikningana nkfog . .
+Módir sfg3en mín feven sáladist sfm3eþ eptir sfg2eþ 9 tfvfe Vikna nvfe Legu nveþ þann fakeo 9da tfkfn Februar nkee-m , , og c fór sfg1eþ eg fp1en undir aþ Mánadarlokin nxeþ-ö austur aa til ae ad nhen vera sng vid nhen Jardarför nkee-m hennar fpvee en c heim aa kom sfg1eþ eg fp1en þann fakeo 12ta tfkfn þ fphen . .
+M nkfþ . .
+Eg fp1en veit sfg1en ad nheo engin foven Heimska nven er sfg3en meiri lvenvm en c ad nhen syrgia nhfe miög nhfn þá aa sem ct deja sfg3fn , , en c þó aa er sfg3en sú faven Heimska nven af aþ mínum fehfþ mörgu lkfþvf veiku lkfþvf Sídum nhfþ-ö hin gven allraveikasta lvenve . .
+Þú fp2en gétur sfg2en um ao Þiófa nveo-m ~ nheo Framvarp nhen mitt feheo _ _ eg fp1en ætlast sfm3en ecki e til aa ámedan nheo sama fbhen Höfud nken-m er sfg3en ecki e á aþ ockur e bádum sfg1fþ , , ad nhen þú fp2en fallist sþmhen á ao allt foheo hiá nheo mér fp1eþ en c vænt lhensf þykir sfg3en mér fp1eþ ad nheo þú fp2en ecki e ert sfg2en móti aþ Höfudideen nkeþ-m , , hvörja sng annars fokee Amtm nkee-m . .
+G nxen-s . .
+J nhfn . .
+og c Etatsrád nken-m E x . .
+hafa sfg3fn adopterad nhfn og c því fpheþ ecki e lengur aam heyrir sfg3en mér fp1eþ einum tfkeþ til aa . .
+Eg fp1en bid nhen þig fp2eo áhrærandi slg Höfudideen nken-m 0 ta . .
+Piófapössunina nveog og c Capitis nkeo-m diminutio e þeirra fpkfe ad nhfn yfirvega sfg3fn , , hvört lvensf nockru e er sfg3en vogad nhen med nhen því fpheþ ad nhen reina nkee hana fpveo , , því fpheþ sé svg3en þad nhen ecki e , , þá aa er sfg3en þessi faven Reynsla nven þó aa heldur c til ae góds nhee en c ills lheesf - - allstadar nheo verdur sfg3en hún fpven traudt nheo óáreidanleg lhfnsf , , og c posito nhen þad nhen yrdi sfg3eþ þá aa finnst sfm3en mér fp1eþ í aþ siálfri nkeþ Formaliteten nxee-ö liggia nhen Vidbætir nkeo-m vid nkeo Piófnadarstraffid nkee-m , , sem ct giörir lkfnsf Þiófnadinn nkfn-s skammarlegri lkfnvm in e opinione e publica e . .
+Þarhiá nhen finnst sfm3en mér fp1eþ ad nheo þad nhen Argum nxee-s . .
+móti aþ Ideen nkeþ-m ( ( ad nhen nl nhen . .
+þad nhen verdi sfg3eþ svikist ssm um ao ad nheo hlýdnast ssm henni fpveþ í aþ praxi nheþ ) ) bevísa nhfe ofmikid nhen , , því fpheþ sama fbhen mætti svg3eþ segia nhen um ao Öll fohfo Lög nhfo-s . .
+Eg fp1en býst sfm1en nú aa annars aa vid nheo hördustu lhfnve Feide nken-m vid nkeo Conferentsrádid nkee-m um ao allt foheo þetta faheo , , því fpheþ hann fpken er sfg3en enn aa ecki e búinn lkensf og c hefir sfg3en siálfur nvfo sagt ssg mér fp1eþ ad nheo hann fpken verdi sfg3eþ í aþ flestu lheþse móti aþ mér fp1eþ , , en c hefir sfg3en lofad nhen mér fp1eþ ad nhen skrifa sfg3fn vægilega aa móti aa ad nheo eg fp1en giöri nheþ þad nhen sama fbhen aptur nhen . .
+Þessu faheþ hefi sfg1en eg fp1en med nheo . .
+allrabesta lkeþve Gédi nheþ-ö lofad nhen hönum fpkeþ , , því fpheþ eg fp1en ætladi sfg1eþ mér fp1eþ ad nheo efna nhfe ' ' þad nhen þó aa aldrei aa hefdi sfg3eþ eg fp1en lofad nhen því fpheþ , , þared nhen eg fp1en veit sfg1en ad nheo menn nkfn ei aa bæta sfg3fn Mál nhen sitt feheo med nheo Hnýfilyrdum nxee-s . .
+Utúr nken Amtm nkee-m . .
+G nxen-s . .
+J nhfn . .
+sérlega aa gódsömu lveovf Bet nveo-m . .
+yfir ao Framvarp nheo mitt feheo hefi sfg1en eg fp1en skrifad nheo Rollu nvee uppá aa ' ' 7 tfvfn Arkir nvfn , , og c þarí nhen [ [ Ali nven-s ] ] t aa mitt fehen um ao Legordsbóta nkfo-s Innfærslu nvee hér aa aptur sfg3en , , og c í aþ því faheþ Efni nheþ er sfg3en Höfudinntakid nken-m hiá nhen mér fp1eþ ad nhen ei aa sé svg3en til ae neins fokee ad nheo innfaera sfg3fn þær fpvfn aptur sfg3en medan nhen Fyrirbænir nvfo Ektamaka nkfe géfa sng Hórdómi nkeþ fullkomna sng Impunitet nxeo-ö , , því fpheþ meinti sfg1eþ eg fp1en ad nheo slíkra fbvfe Fyrirbæna nvfe Verkun nveþ einungis aa ætti svg3eþ ad nhen takmarkast ssm til ae þeirra fpvfe verulegu lkfevf Hórdómsbóta nkfe-s , , en c sá sfg3eþ hlutadegandi lhenof straffast sfm3en sem c fyrir ao slétt lheosf og c rétt nkeo Lausaleiksbrot nheo-ö og c med nhen Bótum nkfþ til ae Justitskassa nxee-s sem ct adur sfg3en . .
+Petta nhfe set sfg1en eg fp1en nú aa til ae þinnar fevee Yfirvegunar nvee . .
+Fiskur nken fyrir aþ Austurlandi nheþ-s - - 60 tfkfn F nxen . .
+Hl nhen . .
+þann fakeo 5ta tfkfn Martii nkeo-m í aþ einu foheþ , , undir aþ Ejafiöllum nhfþ-ö , , minna sng útmed nheo , , hér aa fyrir aa Sunnan aa nú aa fiskilaust lhensf . .
+Fyrirgéfdu sfg3fþ nú aa Flíterinn nkeogö
+þínum fekeþ elskandi nken og c heydrandi lkenof B nxen-s . .
+Thorarensen nven-s . .

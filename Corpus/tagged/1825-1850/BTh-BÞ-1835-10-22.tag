@@ -1,0 +1,19 @@
+45 ta . .
+Fridriksgáfu nveo þann fakeo 22ann tfkfn Octbr nkeo-m . .
+1835 ta . .
+Mér fp1eþ er sfg3en nú aa ordid nhen naumt lhensf fyrir ao med nheo Póstinn nkeog , , svo aa eg fp1en gét sfg1eþ ei aa nema c ad nhen eins lhenof heilsad nhen uppá ao þig fp2eo þó aa eg fp1en vildi sfg1eþ margt lheosf vid nheo þig fp2eo tala sng , , og c publik nhen Sökina nveog sem ct eg fp1en féck e frá aþ þér fp2eþ , , gat sfg1eþ eg fp1en nú aa ecki e expederad nheo med nhen Skipum nhfþ , , en c undir ao þad nheo hid nhen seinasta lhenve fór sfg3eþ , , kom sfg3eþ Jonassen nken-m ockar nhen sem ct Deus nken-m ex nhee machina e austanúr nkeo Múla nkeo-s Sýsslu nveþ-ö , , og c færdi sfg3eþ mér fp1eþ heilann nkeog Búnka nkee-s af aþ Collegialbréfum nkfþ-ö . .
+Tídin nveng er sfg3en bág lhfnsf og c hefi sfg1en eg fp1en til aa ad nhen fría sfg3fn mina nkfog Samvitsku nvee-ö ruglad nheo miklu lhfnvf um ao Asetníngar nkfn-s , , því fpheþ í aþ þessu faheþ Amti nheþ er sfg3en hún fpven í ao þad nheo heila lheovf tekid nheo ecki e svo aa slæm lhfnsf ad nhfn Mannfellir nken þurfi svg3en ad nhen óttast snm e c f nhen i e Tíma nkeþ er sfg3en vidgiört lhensf _ _ en c eptir sfg3en því faheþ sem ct eg fp1en heyri sfg1en sagt ssg ad nheo sunnan aa og c vestan aa mun sfg3en Arferdi nveo-m vera sng svo aa ógurlegt lhensf ad nhen þarvid nhen mun sfg3en eckért e vera sng ad nhen giöra lhenvm . .
+Ad nheo ödru sfg3fþ Leiti nhfn-s má sfg3en hédan nhen heita sng Tídindalaust nxen-s og c allir fokfn nafnkéndir lkfnsf lifa sfg3fn . .
+Eg fp1en sé sfg1en ad nhen þeir fpkfn hafa sfg3fn aptur nvfo i e Fiölni nkeþ-m nartad nkeo í ao þig fp2eo fyrir ao þad nheo þú fp2en sagdir sfg2eþ satt lheosf um ao Jaktirnar nvfog - - þad nhen er sfg3en þá aa liklega aa Ogiaefa nven-m yfir aþ öllum fokeþ minum nkeþg Meiningum nvfþ , , því fpheþ þari nken hefir sfg3en þú fp2en verid nheo mér fp1eþ samdóma lkenof . .
+Recension e mín feven yfir ao Armann nkeo-m í aþ Lit nkeþ . .
+Tid nhen . .
+1833 ta ( ( sem ct annars aa er sfg3en full lvensf af aþ Prentvillum nvfþ ) ) lýsir sfg3en því fpheþ . .
+Láttu sbg2en mig fp1eo vita sfg3fn hvört lhensf þad nhen er sfg3en satt lhensf eda nvfe ósatt lhensf ad nhen Agent nken Svendsen nkee-m hafi svg3en komist ssm á ao Húsgang nkeo vid nhen Fiskijaktir nkfngs . .
+Eg fp1en hefi sfg1en annars aa feingid nheo Bréf nheo sem ct eg fp1en nú aa ei aa má sfg1en vera sng ad nhen svara sng ( ( því fpheþ þad nhen verdur sfg3en ad nheo vera sng Skénsbréf nken-m ) ) frá aþ Flateyar nkeþ-m Agentinum nkeþg , , hvari nheþ hann fpken hefir sfg3en sendt nheo mér fp1eþ Gienpart nken-m af aþ Obligation nxeþ-ö sem ct hann fpken narradi sfg3eþ útúr aþ Teingdamódur nveþ-ö minni feveþ vid nhen Skipti sfg3eþ eptir sfg2eþ gömlu lveþvf Hildi nveþ-s , , hvört sþghen hans fpkee Atferli nhen sýndi sfg3eþ kýmilega aa samantvinnadann nkeog Klaufaskap nkeo og c Orádvendni nveo-m _ _ siálfur nken hefi svg3en eg fp1en i e Höndunum nvfþg hér aa vid nheo Amts nhee Archivid nkee-m Producter nkee-m hanns nkee i e Jörgensens nkee-m Tid nken-m , , aumkunarlegustu lheþse Smiadursbréf nkeo-m til ae hanns nkee sem ct lýsa sfg3fn ofur aa lágri lkeþvm Personlighed nkeþ-m . .
+Þ fphen a x d x e c r lhenof Fólk nhen á aþ Skipinu nheþg því fpheþ arna aa ! !
+sagdi sfg3eþ gamli lkenvf Jón nken-s Vídalín nkeo-s ! !
+Kona nven min lvensf skeinkti sfg3eþ mér fp1eþ Dóttur nveþ þann fakeo 31ta tfkfn August nken-s nærstl nheo . .
+en c þá aa hún fpven var sfg3eþ ad nhen stiga nhfe af aþ Barnssæng nveþ greip sfg3eþ hana fpveo Landfarsótt nveo sem ct snerist sfm3eþ uppí ao Nervefeber nkeo-m í aþ hvörri lveþvm hún fpven enn aa liggur sfg3en , , á aþ þó aa ad nhfn heita sfg3fn ad nhen vera sng i e Apturbata nven-m . .
+Heimilishagur nken minn feken er sfg3en því aa nockud e dapur lkensf . .
+Fyrirgéfdu sfg3fþ nú aa Fliter nkeþ-ö þenna lkeþvf þínum fekeþ heidrandi lkeþof og c elskandi nken B nxee-s . .
+Thorarensen nven-s . .
