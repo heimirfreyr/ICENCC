@@ -7,7 +7,7 @@ A parsed version is available using Berkeley Parser (version 1.7) with the IcePa
 * *Biskupinn í Görðum*, pp. 9-326. Finnur Sigmundsson (ed.). Rvk., 1959.
 * *Geir biskup góði í vinarbréfum 1790-1823*, pp. 11-212. Finnur Sigmundsson (ed.). Rvk., 1966.
 * *Hafnarstúdentar skrifa heim*, pp. 9-109. Finnur Sigmundsson (ed.). Rvk., 1963.
-* *Húsfreyjan á Bessastöðum*, pp. 1-241. Bréf Ingibjargar Jónsdóttur til bróður síns, Gríms amtmanns. Finnur Sigmundsson (ed.). Rvk. 1946.
+* *Húsfreyjan á Bessastöðum*, pp. 1-241. Bréf Ingibjargar Jónsdóttur til bróður síns, Gríms amtmanns. Finnur Sigmundsson (ed.). Rvk., 1946.
 * *Konur skrifa bréf*, pp. 9-148. Sendibréf 1797-1907. Finnur Sigmundsson (ed.). Rvk., 1961.
-* *Sendibréf frá íslenzkum konum 1784-1900*, pp. 1-99. Finnur Sigmundsson (ed.). Rvk. 1952.
-* *Bjarni Thoranensen: Bréf*, Volumes I-II. Jón Helgason (ed.), Hið íslenzka fræðafélag, Rvk. 1986. [Skipping letters written in Danish.]
+* *Sendibréf frá íslenzkum konum 1784-1900*, pp. 1-99. Finnur Sigmundsson (ed.). Rvk., 1952.
+* *Bjarni Thoranensen: Bréf*, Volumes I-II. Jón Helgason (ed.), Hið íslenzka fræðafélag, Rvk., 1986. [Skipping letters written in Danish.]
