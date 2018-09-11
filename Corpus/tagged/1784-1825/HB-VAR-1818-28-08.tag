@@ -1,0 +1,2 @@
+Bessast. nvfo þ. fphen 28da tfkfn ágúst nkeo 1818 ta . .
+Þó aa þú fp2en skrifir svg2en mér fp1eþ pistil nkeo á ao laun nhfo , , verður sfg2en þú fp2en að cn skrifa sng annan fokeo hinsegin lkeoof , , því fpheþ að c eg fp1en engan fokeo fái svg1en , , mun sfg1en þykja sng kynlegt. nvfo Lifðu sfg3fþ vel. nhfe Forláttu nveþ-ö eg fp1en hef sfg1en skrifað ssg tvisvar aa bæjarnafn nheo og c mánaðardag. nhen Sá sfg3eþ seinni lkeovm er sfg3en réttur nken . .

@@ -1,0 +1,4 @@
+23. lkenvf ágúst nken 1820 ta
+Kunningi nken minn feken , , kirurgns nhee Hjaltalín nvee-m , , hefur sfg3en beðið ssg mig fp1eo að cn fela sng þér fp2eþ innlagðan lkeosf fjanda nkeo á aþ hendur. nveþ Sollicitanten nxee-ö er sfg3en sá faken nafntogaði lkenvf Hnausabjarni nheþ-s , , mesti lkenve galdramaður nken undir aþ Jökli nkeþ-s og c í aþ frekara lheþvm lagi nheþ kvenhollur. sbg2en Hann nken-s vill sfg3en nú aa mægjast snm við ao prest nkeo sira nhfe Jón nken-s Hjaltalín nken-m , , ergo nhfn koma sfg3fn í aa tengdir sþgkfn við ao amtm. nheo Stephensen. nkee-m - - Fylgir sfg2en þú fp2en ekki aa máli nheþ hans fpkee með aþ öllum fokeþ krafti nkeþ , , skyldi svg3eþ mig fp1eo ekki aa undra sng , , þó aa þú fp2en fyndir svg2eþ einhver fohfo missmíði nhfo á aþ þér. nveþ Lengra aam og c rækilegra lheovm bréf nheo síðar aam . .
+Þinn feken
+Geir nken-s Vídalín nken-s . .
