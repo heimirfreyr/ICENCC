@@ -1,1 +1,1 @@
-Tagged using the IceNLP Icetagger with additional BÍN data. See https://github.com/hrafnl/icenlp and http://bin.arnastofnun.is/gogn/ for further details.
+Tagged using the IceNLP IceTagger with additional BÍN inflectional data. See https://github.com/hrafnl/icenlp and http://bin.arnastofnun.is/gogn/ for further details.
