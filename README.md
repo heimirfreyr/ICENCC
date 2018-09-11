@@ -15,4 +15,4 @@ A tagged version is available using IceNLP (IceTagger) with BÍN inflections. Se
 * *Húsfreyjan á Bessastöðum*, pp. 1-241. Bréf Ingibjargar Jónsdóttur til bróður síns, Gríms amtmanns. Finnur Sigmundsson (ed.). Rvk., 1946.
 * *Konur skrifa bréf*, pp. 9-148. Sendibréf 1797-1907. Finnur Sigmundsson (ed.). Rvk., 1961.
 * *Sendibréf frá íslenzkum konum 1784-1900*, pp. 1-99. Finnur Sigmundsson (ed.). Rvk., 1952.
-* *Bjarni Thoranensen: Bréf*, Volumes I-II. Jón Helgason (ed.), Hið íslenzka fræðafélag, Rvk., 1986. [Letters in Danish skipped.]
+* *Bjarni Thoranensen: Bréf*, Volumes I-II. Jón Helgason (ed.), Hið íslenzka fræðafélag, Rvk., 1986.
