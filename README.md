@@ -1,5 +1,5 @@
 # Icelandic Corpus of Early Nineteenth-Century Correspondence (ICENCC)
-An electronic rendition of a collection of diplomatic and semi-normalised editions of private letters using [Google Tesseract-OCR](https://code.google.com/p/tesseract-ocr/) and [Skrambi](http://bin.arnastofnun.is/skrambi/) for post-correction. ICENCC was intended as an extension to the [LCLV19 letter corpus](http://brefasafn.arnastofnun.is/) of data up until the middle of the nineteenth century and currently consists of 670 letters written by 26 scribes, approx. 425,000 words. See the `letter inventory` for more details.
+An electronic rendition of a collection of diplomatic and semi-normalised editions of private letters using [Google Tesseract-OCR](https://code.google.com/p/tesseract-ocr/) and [Skrambi](http://bin.arnastofnun.is/skrambi/) for post-correction. ICENCC was intended as an extension to the [LCLV19 letter corpus](http://brefasafn.arnastofnun.is/) of data up until the middle of the nineteenth century and currently consists of 670 letters written by 26 scribes, approx. 425,000 words. See the `Corpus/Bréfaskrá (Letter Inventory)` for more details.
 
 **Parsing**
 A parsed version is available using Berkeley Parser (version 1.7) with the IcePaHC grammar (ice.gr). See `Corpus/parsed`.
